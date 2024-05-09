@@ -1,2 +1,2 @@
 Eu não sei porque alguém estaria aqui, mas bem vindo.
-Eu estudo desenvolvimento de sistemas e gosto de coisas nerdolas.
+Eu gosto de coisas nerdolas e estudo desenvolvimento de sistemas.
